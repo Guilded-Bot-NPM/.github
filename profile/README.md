@@ -1,0 +1,1 @@
+<a href="https://guilded.gg/guilded-bot" target="blank"><img align="center" src="https://img.guildedcdn.com/ContentMediaGenericFiles/b32481acfdcbe05499d3e13fdc129d25-Full.webp?w=1920&h=300" height="100" /></a>
